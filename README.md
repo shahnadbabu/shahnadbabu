@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shahnadbabu
 - 👀 I’m interested in programing
-- 🌱 I’m currently learning B.tech engineerin
+- 🌱 I’m currently learning B.tech engineering
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @https://t.me/+WWDpB6VT2MBlY2Y1
 - 😄 Pronouns: ...
